@@ -1,1 +1,0 @@
-Rabia ilk ödev
